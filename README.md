@@ -9,3 +9,4 @@
 (https://letaibe.media/articles/vidy-robotov-i-oblasti-ih-primeneniya/)
 Управление роботами мыслями, одним компьютером
 Жидкий терминатор движение молекул, поискать статью по этому повод, были ли разработке? Прорыв в технике!
+(https://www.sciencedirect.com/search?qs=robot)
